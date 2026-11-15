@@ -26,7 +26,9 @@ int, i don't bite <3
 *names that are preferred*
 
 
-hi, i'm Lyo, Lyomeiru *(PREFERABLY)* Lyney, or Etxy!! *PLEASE don't call me aeHOEtxy or ballscraper I'll burst out laughing and i get mad*
+hi, i'm Lyo, Lyomeiru *(PREFERABLY)* Lyney, or Etxy!! 
+
+*[DIRECTED] PLEASE don't call me aeHOEtxy or ballscraper I'll burst out laughing?? but seriously it makes me kind of weirded out /lh*
 
 
 
