@@ -1,4 +1,6 @@
-<img width="2048" height="2048" alt="1000030779" src="https://github.com/user-attachments/assets/a127d46d-7b88-4645-af37-3e98dd510e71" />
+<img width="2048" height="2048" alt="1000030864" src="https://github.com/user-attachments/assets/580ce01f-413e-4f4d-b92d-49e1983f75ec" />
+
+
 
 
 
@@ -13,7 +15,7 @@
 
 
 ```diff
-always sleepy..bear with me..❤️
+always sleepy..i have insomnia..bear with me..❤️
 ```
 
   
@@ -26,9 +28,9 @@ int, i don't bite <3
 *names that are preferred*
 
 
-hi, i'm Lyo, Lyomeiru *(PREFERABLY)* Lyney, or Etxy!! 
+hi, i'm Lyo, Lyomeiru *(PREFERABLY)* Myuu, or Etxy!! 
 
-*[DIRECTED] PLEASE don't call me aeHOEtxy or ballscraper I'll burst out laughing?? but seriously it makes me kind of weirded out /lh*
+*[DIRECTED] PLEASE don't call me aeHOEtxy or ballscraper I'll burst out laughing?? i get it the "JOKE" was funny but seriously it makes me kind of weirded out /lh*
 
 
 
@@ -67,10 +69,11 @@ sometimes i'm talkative, sometimes i vanish. nothing personal most of the time.
 <summary><b>𝐈𝐍𝐓ERE𝐒TS</b></summary>
 
 
-lohen❤️ /sil
+men
 
 </details>
 
 
-<img width="2048" height="2048" alt="1000030777" src="https://github.com/user-attachments/assets/8c3dde9c-030e-4371-a3e5-fd89539de112" />
+<img width="681" height="681" alt="1000030848" src="https://github.com/user-attachments/assets/f6e3dbce-5691-410d-82c5-970126b65cfd" />
+
 
