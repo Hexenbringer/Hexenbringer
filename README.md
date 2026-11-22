@@ -1,7 +1,12 @@
-<img width="2048" height="2048" alt="1000030864" src="https://github.com/user-attachments/assets/580ce01f-413e-4f4d-b92d-49e1983f75ec" />
+<img width="220" height="124" alt="1000031160" src="https://github.com/user-attachments/assets/0ea120b0-24a0-435d-bfab-ca3fb237d5bd" />
 
 
 
+
+
+
+
+yowza...true...
 
 
 
@@ -28,11 +33,52 @@ int, i don't bite <3
 *names that are preferred*
 
 
-hi, i'm Lyo, Lyomeiru *(PREFERABLY)* Myuu, or Etxy!! 
+hi, i'm Nyrethi, Lyo, Lyomeiru *(PREFERABLY)* or any name you'd like to call me
 
-*[DIRECTED] PLEASE don't call me aeHOEtxy or ballscraper I'll burst out laughing?? i get it the "JOKE" was funny but seriously it makes me kind of weirded out /lh*
+<details>
 
 
+<summary><b> 💌 : oc x cc CONTENT!!! </b></summary>
+
+
+
+
+
+<img width="4500" height="5164" alt="1000031116" src="https://github.com/user-attachments/assets/22a66752-54cd-4c7c-9c38-d308bc53118f" />
+
+
+
+my oc hi. ok? ok. lore coming i guess
+
+
+
+
+
+nyrethi and mitya are honestly my favourite oc x canon pair i have! nyrethi .... she's quite fond of teasing him! sometimes deliberately acting innocent when she knows EXACTLY what she's doing.....!!!! ??? mitya isn't exactly predictable either..... so their interactions can get pretty ridiculous at times and bro... they're both intelligent, just in their own ways, just...like.. like albert and einstein .... they're also rather fond of each othe...r... which is nice. lol....awww....
+
+No i am not sharing full lore keeping the big cake to myself
+
+
+
+<img width="1727" height="1598" alt="1000031141" src="https://github.com/user-attachments/assets/832a5640-dc87-4c9e-8dad-df0a515aa18b" />
+
+
+
+<img width="2048" height="1598" alt="1000031139" src="https://github.com/user-attachments/assets/2db513c8-ae1d-457f-8f94-211d395deeaf" />
+
+
+
+
+
+
+<img width="2048" height="1598" alt="1000031140" src="https://github.com/user-attachments/assets/2fdbff84-7b01-4b7b-8271-5c497cd7962f" />
+
+
+
+
+
+  
+</details>
 
 
 <details>
@@ -73,7 +119,5 @@ men
 
 </details>
 
-
-<img width="681" height="681" alt="1000030848" src="https://github.com/user-attachments/assets/f6e3dbce-5691-410d-82c5-970126b65cfd" />
 
 
