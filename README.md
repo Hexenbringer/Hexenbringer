@@ -1,9 +1,9 @@
-<img width="220" height="125" alt="1000029096" src="https://github.com/user-attachments/assets/12e499d6-2fa8-44d2-bee8-14f59983bef6" />
+<img width="736" height="552" alt="1000030553" src="https://github.com/user-attachments/assets/6d4fa6d7-2074-4307-a987-4be15029eb20" />
 
 
 
 
-
+*"My dear hare, I wonder if you know how quietly you have become a part of my days. Even amidst the longest winters, I find comfort in the thought of you. Take care, Vice Captain. The world has always asked so much of you; I hope, at least, that you will allow yourself a moment of peace."*
 
 
 
