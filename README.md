@@ -38,9 +38,6 @@ hi, i'm Lyo, Lyomeiru *(PREFERABLY)* or any name you'd like to call me
 
 
 
-— sona!!
-
-<img width="3785" height="2864" alt="1000031269" src="https://github.com/user-attachments/assets/eb9740f1-b105-4bdc-bc27-92d7f451c523" />
 
 
 
